@@ -15,4 +15,5 @@
 
 ## Notas
 > ***Paseme plox :\'(***
-["Help me"](https://www.pinterest.com/pin/404690716494417647/)
+
+["Help me"](https://i.pinimg.com/564x/04/0b/08/040b0849a82e7dd6d026c73ae46daf0c.jpg)
